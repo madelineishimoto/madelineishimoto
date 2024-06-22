@@ -8,6 +8,6 @@ I am Madeline
 - 👯 I’m looking to collaborate on projects aimed at addressing social, environmental or humanitarian issues. Some ideas are a waste management app, or a predictive model
 - 💬 Ask me about my plans to double major in developmental psychology
 - 📫 How to reach me: mishimoto@ucsd.edu
-- ⚡ Fun fact: I am an artist who specialized in landscape, realism, surrealism, portrait and impressionism through the acrylic medium 
+- ⚡ Fun fact: I am an artist who specializes in landscape, realism, surrealism, portrait and impressionism through the acrylic medium 
 
  
